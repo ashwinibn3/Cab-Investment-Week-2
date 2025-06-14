@@ -1,1 +1,1 @@
-**CAB Investment Insights G2M Strategy**
+***CAB Investment Insights G2M Strategy***
